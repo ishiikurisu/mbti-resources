@@ -3,17 +3,20 @@ Really, self-growth is what all of this stuff is really, ultimately all about!
 Naturally, what happens in midlife, is that when the ego grows a bit bored of seeing life through its lifelong perspectives (seeing they haven't really solved the pains of life), it weakens its defenses, and the suppressed perspectives will be able to come into consciousness more. For instance, the Trickster will be "flooding consciousness with paradoxes that have no solution within the framework the ego has established". (Lenore Thomson, Personality Pathways). The ego can either continue trying to resist, or instead become more open to them. (Hence, it's not a matter of the functions automatically "developing" like the first four did). This is what is supposed to lead towards "individuation".
 
 In short, the four basic positions can be summed up as
-1, 5 ego's identity and advancement
-2, 6 ego's authority over others
-3, 7 ego's submission or deference
-4, 8 ego's connection to life, aspirations
+
++ 1, 5 ego's identity and advancement
++ 2, 6 ego's authority over others
++ 3, 7 ego's submission or deference
++ 4, 8 ego's connection to life, aspirations
 
 So it seems, the way the complexes (the more negative ones, mainly) are constellated, is that 
-1) we feel {inferior, obstructed, negated, double bound, ego threatened} 
-2) we then project this onto others
-3) we then respond in kind
+
+1. we feel {inferior, obstructed, negated, double bound, ego threatened} .
+2. we then project this onto others
+3. we then respond in kind
 
 So here now are the pertinent complexes.
+
 The thing to remember, is that anyone can do any of these things using the functional perspectives, but for the type with that function connected to that archetype, there will be a heightened emotional investment in the action or reaction, as the function translates the emotional responses involving the complex into cognitive information.
 
 ##HERO (dominant)##
